@@ -7,26 +7,16 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=truceiocity&color=8B68CC)
 
 
-  <br><br>
-  <details>
-  <summary><font color="#00CED1">🩵 <b>Interest</b></font></summary>
-  <br>
-  Ennegram, Forsaken, NSO, Dandy's world, Alien stage, Omori, Oyasumi punpun, HSR, genshin, Z.Z.Z, reverse1999, Morimens, Skullgirls, Manhera chan, TLG, TMIRB, BT, Advanture time, Chainsaw man, dandadan( i have alot but don't remember them all)
-</details>
-
-<details>
-  <summary><font color="#00CED1">💖 <b>byi</b></font></summary>
-  <br>
-  Overly sensitive so IWEC/IWC, Please do not copy or insp my skins/cosplys :(, Often afk so im so srry if I'm being unresponsive!, New to typology but planning to learn more about them, awkward at first But if we share the same interest + humour we'll get along, Im I[S]FP 9w8 sp/sx 935
-</details>
   
-  <br><br> <img src="https://64.media.tumblr.com/dbf1b8a73219f5191498c615af2c769d/69aa5ddf4c48dc0a-68/s640x960/9e7dd96065e73de03338c1c0e3ff324e3103bdff.gifv" width="10000" />
-</p>  Internet angel!
+  
+  <br><br> <img src="https://64.media.tumblr.com/f9634ef9e94f85e24b82589dd5d7c7d2/ca57009f40232763-e9/s1280x1920/91442f9e8cfd35dbb10a48ac5b016238bd5ac87f.jpg" width="900" />
 
-<a href="LINK_URL_1"><img src="https://64.media.tumblr.com/f2422a3f10b1eb995024c43bc454e63f/be48a012ce017fbf-26/s540x810/50791a06349f9c02343db16e542be21693849792.gifv"
+<br><br>
+
+<a href="LINK_URL_1"><img src="https://64.media.tumblr.com/6ba53ea588074f644d0bce1bc8c9195a/3724a9aac2cefc38-20/s1280x1920/a1aa443272bbeabb4199eec44fac99d61bad80b9.pnj"
 width="80" /></a>
-  <a href="LINK_URL_2"><img src="https://64.media.tumblr.com/e293e2f31f8aceadb9d1ed187e07f715/ec4e0e3064314d61-c1/s100x200/6c529e7a1cbc04a862d85b9aeb1e33db53fd330d.gifv" width="80" /></a>
-  <a href="LINK_URL_3"><img src="https://64.media.tumblr.com/a79fece25d7e88025f1c1f37b6a0fd41/7bf7ca88a92b27d3-c4/s100x200/4df89bc2768b99b915952afd584a3a17ea248416.gifv" width="80" /></a>
+  <a href="LINK_URL_2"><img src="https://64.media.tumblr.com/030cfef035a829c8687b19825b82c793/fa62fd152c6fe71f-ad/s250x400/99306cd1c1a7ee5171acbab1fb507f5afafe0fb8.gifv" width="90" /></a>
+  <a href="LINK_URL_3"><img src="https://64.media.tumblr.com/385a485d268e66025d6ed694971b59fa/f9c4c443bd5ba2f7-f8/s250x400/f94d8b38ffb4bc41f6500b105ced71ea5814d066.gifv" width="80" /></a>
 
 
 <a href="https://slit2wrist.atabook.org/">ᦓꪱᧁꪀ hꫀrꫀ‼️</a> &nbsp;&nbsp; | &nbsp;&nbsp; 
