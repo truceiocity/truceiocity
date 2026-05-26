@@ -20,5 +20,5 @@ width="80" /></a>
 
 
 <a href="https://slit2wrist.atabook.org/">ᦓꪱᧁꪀ hꫀrꫀ‼️</a> &nbsp;&nbsp; | &nbsp;&nbsp; 
-  <a href="https://en.pronouns.page/@Vvrinerine">ρɾσɳσυɳʂ </a> &nbsp;&nbsp; | &nbsp;&nbsp; 
+  <a href="https://en.pronouns.page/@trucejuicy">ρɾσɳσυɳʂ </a> &nbsp;&nbsp; | &nbsp;&nbsp; 
   <a href="https://guns.lol/slit2wrists">Aժժ ʍҽ</a>
