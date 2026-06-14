@@ -1,1 +1,1 @@
-[![My Spotify Widget](https://spotify-github-profile.kittinanx.com/api/view?uid=31lvkktuzpj5eaezyevhb3oueaby&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=0000ff)](https://open.spotify.com/user/31lvkktuzpj5eaezyevhb3oueaby)
+
